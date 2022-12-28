@@ -21,7 +21,7 @@
 
 #### Personal skills
 * Analytical mind
-* Good comunication skills
+* Good soft skills
 * Always work responsibly
 * Have a good sense of humor
 
